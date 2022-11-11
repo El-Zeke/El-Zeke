@@ -1,6 +1,6 @@
 **✨ Hi ✨**
 
-_🇦🇷, 24y M, currently studying IT (Universidad Nacional de La Plata)_
+_Argentinian, 24y M, currently studying IT (Universidad Nacional de La Plata)_
 
 
 ![Logo_IG](https://user-images.githubusercontent.com/105181943/199927122-c60c1041-da2f-42e7-b798-da8d20cdeb87.png)  https://www.instagram.com/mattoseze/
